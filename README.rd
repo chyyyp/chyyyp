@@ -1,3 +1,5 @@
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/E1E6J2OW6)
+
 [Frage]   Wer ist CHYYYP? 
 [Antwort] chyyyp ist irgend so ein Random aus dem Internet der Valorant 
           und sowas auf Twitch streamt um seine Dummheit an andere 
